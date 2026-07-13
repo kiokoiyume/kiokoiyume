@@ -1,4 +1,4 @@
-hi im gonnabe 14 in a few months
+hi im 14!! 
 # . 
 # . 
 # . 
